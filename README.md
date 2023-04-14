@@ -1,1 +1,0 @@
-# cornellia-121160014-matematika
